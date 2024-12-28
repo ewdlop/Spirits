@@ -10,4 +10,4 @@ They are imps. 100% correct.
 
 
 Passcode:
-People turns kid into imps
+People turns kids into imps
